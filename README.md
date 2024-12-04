@@ -2,7 +2,7 @@
 I would like to invite you to take part in my **Ph.D. thesis research project**. Before deciding to participate, please read this information sheet, to understand the purpose of this research and what is involved with participation. After you have had 48 hours to read this information sheet, I will send you the consent form. Please feel comfortable asking any questions if you would like more information or are unclear about aspects of the process. 
 ## WHO AM I AND WHAT IS THE PURPOSE OF THIS PROJECT?
 I am a human geography student from the University of Bristol in the United Kingdom, currently working on my Ph.D. thesis. <br/>
-This research project aims to explore the challenges and opportunities of being labelled as `gifted` in your educational experiences. I am interested in learning about the negative circumstances and feelings that have affected you in your past experiences. I believe that understanding these circumstances can lead to a better educational outcome, with the necessary support and regulations.
+This research project aims to explore the challenges and opportunities of being labelled as gifted in your educational experiences. I am interested in learning about the negative circumstances and feelings that have affected you in your past experiences. I believe that understanding these circumstances can lead to a better educational outcome, with the necessary support and regulations.
 ## WHY HAVE YOU BEEN SELECTED TO TAKE PART?
 I am reaching out to you because your views will help us understand how being labelled as gifted has affected your educational journey and your feelings.
 ## DO YOU HAVE TO TAKE PART?
